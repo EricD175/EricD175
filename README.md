@@ -1,6 +1,6 @@
 ## EricD175
 
-a person who can code a bit
+a cs student that codes a lot in his freetime
 
 ---
 
